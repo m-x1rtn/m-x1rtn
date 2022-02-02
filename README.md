@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @m-x1rtn
+- 👀 I’m interested in gaming and coding.
+- 🌱 I’m currently learning Python and school stuff.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me heh i don't need anything.
